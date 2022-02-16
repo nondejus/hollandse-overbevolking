@@ -1,2 +1,3 @@
 # hollandse-overbevolking
-liburgers go ho e
+
+seriemoord als hoogste goed
